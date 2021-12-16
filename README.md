@@ -1,5 +1,5 @@
 Les noms des personnes du groupe sont
-Chefs : Pierre kiroule - Namas Pamousse
-Sous-chef:
-Sous-sous-chef:
-Sous-sous-sous-chef:
+Chef : Benja
+Sous-chef: Gaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaasp
+Sous-sous-chef:Martin
+Sous-sous-sous-chef: stoll
