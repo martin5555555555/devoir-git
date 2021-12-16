@@ -1,5 +1,5 @@
 Les noms des personnes du groupe sont
-Chef : 
+Chef : Benja
 Sous-chef:
 Sous-sous-chef:
 Sous-sous-sous-chef:
